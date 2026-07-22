@@ -21,5 +21,3 @@ I love solving Data Structures & Algorithms problems and competitive programming
 ---
 ⭐️ Feel free to check out my profiles and connect with me!
 
-
-isme image vali link mein kuch ched khani mat kar bss readme mein tujhe jo predssional cheeze lage iss resume mein vo dal de
